@@ -18,4 +18,5 @@ Contact Information
 For any inquiries or collaborations, feel free to reach out:
 
 Email: saurabhgupta0399@gmail.com
+
 LinkedIn: www.linkedin.com/in/sg0399
